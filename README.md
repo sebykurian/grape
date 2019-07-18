@@ -15,3 +15,9 @@ Grape in the Culture
 -------------------
 
 In the Bible, grapes are first mentioned when Noah grows them on his farm.[44] Instructions concerning wine are given in the book of Proverbs and in the book of Isaiah.[45][46] Deuteronomy tells of the use of wine during Jewish feasts. Grapes were also significant to both the Greeks and Romans, and their god of agriculture, Dionysus, was linked to grapes and wine, being frequently portrayed with grape leaves on his head.[47] Grapes are especially significant for Christians, who since the Early Church have used wine in their celebration of the Eucharist.[48] Views on the significance of the wine vary between denominations. In Christian art, grapes often represent the blood of Christ, such as the grape leaves in Caravaggio's John the Baptist. 
+
+
+History of Grapes
+------------------
+
+Ancient Egyptian hieroglyphics record the cultivation of purple grapes, and history attests to the ancient Greeks, Phoenicians, and Romans growing purple grapes for both eating and wine production.[7] The growing of grapes would later spread to other regions in Europe, as well as North Africa, and eventually in North America. 
